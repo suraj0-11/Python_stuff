@@ -1,0 +1,2 @@
+# Python_stuff
+<H1> POSTING THE LEARNING STUFF FOR NOW </H1>
